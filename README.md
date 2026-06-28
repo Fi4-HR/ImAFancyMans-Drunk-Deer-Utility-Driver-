@@ -32,3 +32,5 @@ SUPPORTED VERISONS OF KEYBOARDS!
 Source Code For Nerds!:https://drive.google.com/drive/folders/1EpDTyHE-Y6GhlDg5DGd70l-lfNkZZLzH?usp=sharing
 
 Youtube : https://www.youtube.com/watch?v=npd0fYCyLWg
+
+NOTE: This Is Mine My Username Across My Socials Got Changed!
